@@ -9,3 +9,5 @@ Now this is a story all about how my life got flipped turn upside down.
 so I'd like to take a minute just sit right there
 
 I'll tell you all about I became the prince of a small town called Bel-Air
+
+In west philadelphia born and raised, on the playground is where I spent most of my days
