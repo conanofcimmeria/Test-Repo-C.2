@@ -9,3 +9,6 @@ Now this is a story all about how my life got flipped turn upside down.
 so I'd like to take a minute just sit right there
 
 I'll tell you all about I became the prince of a small town called Bel-Air
+
+JUST A SMALL TOWN GIRL. LIVING IN A LONELY WOOOOORLD.
+SHE TOOK A MIDNIGHT TRAIN GOING ANYWHEEEERE.
